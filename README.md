@@ -1,2 +1,1 @@
 - 👋 Hi, I’m tim
-- 📫 tim.schnepf@me.com
